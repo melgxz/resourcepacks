@@ -1,3 +1,5 @@
 # resourcepacks by MelGXZ
-https://twitter.com/melgxz
+  # Twitter: 
+  https://twitter.com/melgxz
+  # Discord:
 https://discord.com/invite/sRncyfc
